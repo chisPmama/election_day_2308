@@ -1,4 +1,4 @@
-# Election Day
+# Election Day (Start: 12:42 AM - 1:04 AM) (8:25 AM RESUME)
 
 ## Preparation
 
